@@ -1,4 +1,5 @@
 ### Read this before following me, even if you are a spam account. (It's long af)
+
 If you plan on following me, I'd recommend that you look at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/) first then staring at the rest of my pages, as that will give you insight as to what my stance on things is.
 I've seen plenty of spam accounts that interact with me while having a DNI for some reason... So I'll be blunt. **You being a spam account does NOT give you the right to interact with me at all if you have a DNI.** Mostly you're shooting yourself in the foot. As well as that people can't read apparently, and follow me while being in my DBIIYOTL.
 
