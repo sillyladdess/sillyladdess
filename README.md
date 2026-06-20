@@ -4,7 +4,7 @@ I've seen plenty of spam accounts that interact with me while having a DNI for s
 
 While yes, I may go through your profile when I see your spam account (I want to see who REALLY followed me), if I don't see a DNI in any way, shape or form that isn't crystal clear or is "idk man rude people DNI!!!", I will block you AND your spam account.
 
-If you followed me, with friends who don't have a DNI themselves, I will assume you read my stuff clearly, and understand the consequences of following me.
+If you followed me, with friends who don't have a DNI themselves/ you're still working on it but want to take your mind off of it/ no DNI, I will assume you read my stuff clearly, and understand the consequences of following me.
 
 ### For PT
 
