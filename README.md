@@ -3,7 +3,7 @@
 shortcuts : [For Pony Town](https://github.com/sillyladdess/sillyladdess/blob/main/README.md#for-pt) , [General](https://github.com/sillyladdess/sillyladdess/blob/main/README.md#general) , [mega bluntness](https://github.com/sillyladdess/sillyladdess/blob/main/README.md#mega-bluntness)
 
 If you plan on following me, I'd recommend that you look at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/) first then staring at the rest of my pages, as that will give you insight as to what my stance on things is.
-I've seen plenty of spam accounts that interact with me while having a DNI for some reason... So I'll be blunt. **You being a spam account does NOT give you the right to interact with me at all if you have a DNI.** Mostly you're shooting yourself in the foot. As well as that people can't read apparently, and follow me while being in my DBIIYOTL.
+I've seen plenty of spam accounts that interact with me while having a DNI for some reason... So I'll be blunt. **You being a spam account does NOT give you the right to interact with me at all if you have a stance I believe in in your DNI.** Mostly you're shooting yourself in the foot... Unless you want to point fingers and go "This ``insert stance/thing here`` followed me!!! They are all clearly not respecting their DNI!!!!". As well as that people can't read apparently, and follow me while being in my DBIIYOTL.
 
 While yes, I may go through your profile when I see your spam account (I want to see who REALLY followed me), if I don't see a DNI in any way, shape or form, or one that isn't crystal clear or is "idk man rude people DNI!!!", I will block you AND your spam account.
 
