@@ -4,8 +4,6 @@ I've seen plenty of spam accounts that interact with me while having a DNI for s
 
 While yes, I may go through your profile when I see your spam account (I want to see who REALLY followed me), if I don't see a DNI in any way, shape or form that isn't crystal clear or is "idk man rude people DNI!!!", I will block you AND your spam account.
 
-If you followed me, with friends who don't have a DNI themselves/ you're still working on it but want to take your mind off of it/ no DNI, I will assume you read my stuff clearly, and understand the consequences of following me.
-
 ### For PT
 
 I don't work with roleplay, talking, c+h, hiding, etc etc. I'm a very, very antisocial person at first glance, as I hate the concept of interacting with anyone that might not read my stuff, **especially if you run up to me like "HAIII HELLO HII I WANT TO BE FRIENDS WITH YOU UWU!!!"**.(I don't have an issue with people going uwu but something like that and I'll block you.)
@@ -46,7 +44,7 @@ Another thing, these two skins are exclusively used for trolling. If you see me 
 
 ### General
 
-If you have no DNI listed, or ``"DNI: general criteria"`` I'm blocking you immediately. I don't know what's in your boundaries, and a ``"general criteria"`` doesn't mean anything if you want to put some things that are random in your DNI. I also avoid following accounts with no ``DNI`` listed to avoid being dragged into unnecessary drama. I don't care if you don't want a long DNI, make it be long so it's [visible](https://dictionary.cambridge.org/dictionary/english/visible) what your boundaries are.
+If you have no DNI listed, or ``"DNI: general criteria"`` I'm blocking you. I don't know what's in your boundaries, and a ``"general criteria"`` doesn't mean anything if you want to put some things that are random in your DNI. I also avoid following accounts with no ``DNI`` listed to avoid being dragged into unnecessary drama. I don't care if you don't want a long DNI, make it be long so it's [visible](https://dictionary.cambridge.org/dictionary/english/visible) what your boundaries are. I typically block people first, however if you followed me, with friends who don't have a DNI themselves/ you're still working on it but want to take your mind off of it/ no DNI, I will assume you read my stuff clearly, and understand the consequences of following me.
 
 Make sure to read the [conditions and interests](https://whyism.carrd.co/) when you feel like something's bugging in your brain when you stare at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/)
 
