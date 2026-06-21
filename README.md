@@ -45,6 +45,8 @@ Another thing, these two skins are exclusively used for trolling. If you see me 
 
 ![meganight](https://github.com/sillyladdess/READ-IT-NOW-DO-IT-NOW/blob/c95f222e1eed95ff66f0003cae55b2a8786bc071/pony-town---%20I'mSufferingFromIdgaf-its-boop-lie-blinking-name-padded-6x.gif)![MEGANIGHT](https://github.com/sillyladdess/READ-IT-NOW-DO-IT-NOW/blob/c95f222e1eed95ff66f0003cae55b2a8786bc071/pony-town---%20I'mSufferingFromIgaf-itis-lie-blinking-name-padded-6x.gif)
 
+This skin is made to hide behind. Don't be afraid to hide when I have this skin on. However, if it's another skin and you're not my friend I suggest you move away from doing so.
+
 ![bakok](https://github.com/sillyladdess/sillyladdess/blob/6e395d0c71970e3c0c1ebda74c5eb1c474b85c35/pony-town---%20angry%20munci-lie-blinking-name-padded-toy354-6x.gif)
 
 ### General
