@@ -51,7 +51,9 @@ This skin is made to hide behind. Don't be afraid to hide when I have this skin 
 
 ### General
 
-If you have no DNI listed, or ``"DNI: general criteria"`` I'm blocking you. I don't know what's in your boundaries, and a ``"general criteria"`` doesn't mean anything if you want to put some things that are random in your DNI. I also avoid following accounts with no ``DNI`` listed to avoid being dragged into unnecessary drama. I don't care if you don't want a long DNI, make it be long so it's [visible](https://dictionary.cambridge.org/dictionary/english/visible) what your boundaries are. I typically block people first, however if you followed me, with friends who don't have a DNI themselves/ you're still working on it but want to take your mind off of it/ no DNI, I will assume you read my stuff clearly, and understand the consequences of following me.
+If you have no DNI listed, or ``"DNI: general criteria"`` I'm blocking you. I don't know what's in your boundaries, and a ``"general criteria"`` doesn't mean anything if you want to put some things that are random in your DNI. I also avoid following accounts with no ``DNI`` listed to avoid being dragged into unnecessary drama. I don't care if you don't want a long DNI, make it be long so it's [visible](https://dictionary.cambridge.org/dictionary/english/visible) what your boundaries are.
+
+I typically block people first, however if you followed me, with friends who don't have a DNI themselves/ you're still working on it but want to take your mind off of it/ no DNI, I will assume you read my stuff clearly, and understand the consequences of following me.
 
 Make sure to read the [conditions and interests](https://whyism.carrd.co/) when you feel like something's bugging in your brain when you stare at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/)
 
