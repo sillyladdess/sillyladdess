@@ -11,6 +11,8 @@ While yes, I may go through your profile when I see your spam account (I want to
 
 I don't work with roleplay, talking, c+h, hiding, etc etc. I'm a very, very antisocial person at first glance, as I hate the concept of interacting with anyone that might not read my stuff, **especially if you run up to me like "HAIII HELLO HII I WANT TO BE FRIENDS WITH YOU UWU!!!"**.(I don't have an issue with people going uwu but something like that and I'll block you.)
 
+``Note : if you copy my friends' or my skins and you hang around the Countryhumans, The Amazing Digital Circus, Transformers or the Genshin Impact fandom areas, or occasionally at the Bakery with the skin you copied from me/my friends, expect there to be a drama.``
+
 If you want to get in touch with me, I'd recommend you don't walk up to me directly , rather a quick whisper will do. And if you want to actually chat with me in public chat do NOT do it if I have something like "DNI" or "NOFD" in my name.
 
 If you can't give me something or you can't friend me, it's because I blocked you (either because you're in my DBIIYOTL or because you have no DNI. 
