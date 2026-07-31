@@ -58,7 +58,7 @@ If you have no DNI listed, or ``"DNI: general criteria/basic criteria"`` I'm blo
 I say I block people who have ``"DNI: general criteria/basic criteria"`` because of ~~bullshit like~~ this![ ](https://github.com/sillyladdess/sillyladdess/blob/2d43156aae2c97c8ac41876a77593b150acc5a3a/Screenshot_20260703-180752.png)
 
 
-I typically block people first, however if you followed me, with friends who don't have a DNI themselves/ you're still working on it but want to take your mind off of it/ no DNI, I will assume you read my stuff clearly, and understand the consequences of following me.
+I typically block people first, however if you followed me, with friends who don't have a DNI themselves/ you're still working on it but want to take your mind off of it, I will assume you read my stuff clearly, and understand the consequences of following me.
 
 Make sure to read the [conditions and interests](https://whyism.carrd.co/) when you feel like something's bugging in your brain when you stare at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/)
 
