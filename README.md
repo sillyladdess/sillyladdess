@@ -7,6 +7,7 @@ I've seen plenty of spam accounts that interact with me while having a DNI for s
 
 While yes, I may go through your profile when I see your spam account (I want to see who REALLY followed me), if I don't see a DNI in any way, shape or form, or one that isn't crystal clear or is "idk man rude people DNI!!!", I will block you AND your spam account.
 
+## I will no longer be visible on pony town due to emotional difficulties
 ### For PT
 
 I don't work with roleplay[sometimes I'm just not in the mood to roleplay as one of my characters], c+h, hiding, etc etc. I'm a very, very antisocial person at first glance, as I hate interacting with anyone that doesn't read my stuff, **especially if you run up to me like "HAIII HELLO HII I WANT TO BE FRIENDS WITH YOU UWU!!!"**.(I don't have an issue with people going uwu but something like that and I'll block you.)
@@ -67,9 +68,8 @@ If you decide that reading all my strawpages is too tiring for your brain and ju
 
 If you have friends or you follow people that have a certain stance I believe in in their DNI, expect me to block you at first sight. I don't want to cause an unnecessary drama and I don't want you to upset your friends just because you want to observe my characters from a friend's perspective.
 
-Do not expect me to be up for debate about my stances. These are as refined and simple to understand as a metal nail in a wall. If you want to debate and not be unintentionally ragebaited, [my friend](https://github.com/rekaraven) is at your disposal.
-
-I'm not willing to share what I create with you. I'm not willing to draw or create something for you unless we're getting married ([figuratively](https://dictionary.cambridge.org/dictionary/english/figuratively))(I'm [figuratively](https://dictionary.cambridge.org/dictionary/english/figuratively) married to [rékaraven](https://github.com/rekaraven).)
+Do not expect me to be up for debate about my stances. These are as refined and simple to understand as a metal nail in a wall. 
+I'm not willing to share what I create with you. I'm not willing to draw or create something for you unless we're getting married ([figuratively](https://dictionary.cambridge.org/dictionary/english/figuratively))
 
 If you come up first as a troll, expect me to never care about you or your feelings. I may be an [INFP](https://www.16personalities.com/infp-personality), but I can turn quickly into an emotion neglecting person. There's no "enemies to lovers" when you speak of me.(unless we are hating eachother because we are [balkaners](https://en.wiktionary.org/wiki/Balkaner) but SHHHHHHHHHH) I don't like ragebaiters who come up out of nowhere and harass me when I myself do not have a troll skin.
 
