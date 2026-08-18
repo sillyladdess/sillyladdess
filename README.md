@@ -69,6 +69,7 @@ If you decide that reading all my strawpages is too tiring for your brain and ju
 If you have friends or you follow people that have a certain stance I believe in in their DNI, expect me to block you at first sight. I don't want to cause an unnecessary drama and I don't want you to upset your friends just because you want to observe my characters from a friend's perspective.
 
 Do not expect me to be up for debate about my stances. These are as refined and simple to understand as a metal nail in a wall. 
+
 I'm not willing to share what I create with you. I'm not willing to draw or create something for you unless we're getting married ([figuratively](https://dictionary.cambridge.org/dictionary/english/figuratively))
 
 If you come up first as a troll, expect me to never care about you or your feelings. I may be an [INFP](https://www.16personalities.com/infp-personality), but I can turn quickly into an emotion neglecting person. There's no "enemies to lovers" when you speak of me.(unless we are hating eachother because we are [balkaners](https://en.wiktionary.org/wiki/Balkaner) but SHHHHHHHHHH) I don't like ragebaiters who come up out of nowhere and harass me when I myself do not have a troll skin.
