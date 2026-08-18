@@ -7,7 +7,7 @@ I've seen plenty of spam accounts that interact with me while having a DNI for s
 
 While yes, I may go through your profile when I see your spam account (I want to see who REALLY followed me), if I don't see a DNI in any way, shape or form, or one that isn't crystal clear or is "idk man rude people DNI!!!", I will block you AND your spam account.
 
-## I will no longer be visible on pony town due to emotional difficulties
+## ⚠️⚠️⚠️ I will no longer be visible on pony town due to emotional difficulties ⚠️⚠️⚠️
 ### For PT
 
 I don't work with roleplay[sometimes I'm just not in the mood to roleplay as one of my characters], c+h, hiding, etc etc. I'm a very, very antisocial person at first glance, as I hate interacting with anyone that doesn't read my stuff, **especially if you run up to me like "HAIII HELLO HII I WANT TO BE FRIENDS WITH YOU UWU!!!"**.(I don't have an issue with people going uwu but something like that and I'll block you.)
